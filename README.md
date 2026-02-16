@@ -1,4 +1,13 @@
-## Hi there 👋
+<p align="center">                 
+ <img src="https://media1.tenor.com/m/moSUeIfbJSoAAAAd/ninjago-dragons-rising-dragons-rising.gif3&" height=440 width=670">
+
+
+<p align="center"
+  
+
+  
+
+![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=0f1c58)
 
 <!--
 **deviousduoz/deviousduoz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
