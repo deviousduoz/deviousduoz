@@ -1,5 +1,13 @@
 <p align="center">                 
- <img src="https://media1.tenor.com/m/moSUeIfbJSoAAAAd/ninjago-dragons-rising-dragons-rising.gif3&" height=440 width=670">
+ <img src="https://cdn.discordapp.com/attachments/1392812686265552966/1474702365419503657/My_Best_Friend_Died_on_the_Unstable_SMP.webp?ex=699acf1a&is=69997d9a&hm=d4aadbdbefd4b9f9faa06092c2411120a4aab04f633b9fa542ecc1c16a5da301&" height=330 width=500">
+
+
+<p align="center"
+  
+<p align="center"> $${\color{navy}
+  minor,,  istp  multi-fandom }$$
+ <p align="center"> $${\color{red}
+  check strawpage byi}$$
 
 
 <p align="center"
