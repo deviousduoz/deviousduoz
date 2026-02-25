@@ -7,7 +7,7 @@
 <p align="center"> $${\color{navy}
   minor,,  istp  multi-fandom }$$
  <p align="center"> $${\color{red}
-  so94sp7 check strawpage byi}$$
+  sx6so9sp4 check strawpage byi}$$
 
 
 <p align="center"
