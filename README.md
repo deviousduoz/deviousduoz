@@ -5,7 +5,7 @@
 <p align="center"
   
 <p align="center"> $${\color{navy}
-  i go by tangsz or  jay!!   }$$
+  i  go by tangsz or  jay!!   }$$
  <p align="center"> $${\color{red}
   istp, 6w5 check strawpage byi}$$
 
