@@ -5,9 +5,9 @@
 <p align="center"
   
 <p align="center"> $${\color{navy}
-  minor,,  istp  multi-fandom }$$
+  i go by tangsz or  jay!!   }$$
  <p align="center"> $${\color{red}
-  sp6so9sp4 check strawpage byi}$$
+  istp, 6w5 check strawpage byi}$$
 
 
 <p align="center"
