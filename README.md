@@ -7,7 +7,8 @@
 <p align="center"> $${\color{navy}
     i  go by tangsz or  jay!!   }$$
  <p align="center"> $${\color{red}
-  istp, 6w5 check strawpage byi}$$
+  istp,  6w5}$$     <a href="https://spokeful.atabook.org/">sign my ata</a>
+
 
 
 <p align="center"
