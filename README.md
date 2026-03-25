@@ -20,7 +20,7 @@ $\color{#fc4e4e}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp
 
   
 
-![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=ff9391)
+![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=ff9391) $\color{#544242}{  ✧  c+h  are   enc!!  ೀ     libramasc  ,  aro-spec    }$
 
 
 
