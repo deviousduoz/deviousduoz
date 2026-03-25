@@ -6,7 +6,7 @@
 
 
 <p align="center">   
-<img style="float: center;" src="https://files.catbox.moe/g32vf1.png" height=100 width=100/>
+<img style="float: center;" src="https://files.catbox.moe/g32vf1.png" height=50 width=50/>
 $${\color{navy} i  go by tangsz or  jay!!   }$$
 </p>
  <p align="center"> $${\color{red}
