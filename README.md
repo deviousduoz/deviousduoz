@@ -5,19 +5,20 @@
 
 
 
- <p> <img src="https://files.catbox.moe/g32vf1.png" height=100 width=100">  </p>
- <p> $${\color{navy} i  go by tangsz or  jay!!   }$$ </p>
+ ![](https://files.catbox.moe/g32vf1.png) <p> $${\color{navy} i  go by tangsz or  jay!!   }$$ </p>
  <p align="center"> $${\color{red}
   istp,  6w5}$$     <a href="https://spokeful.atabook.org/">sign my ata</a>
 
 
 
-<p align="center"
-  
+<p align="center" 
+
 
   
 
 ![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=0f1c58)
+
+
 
 <p align="center">                 
  <img src="https://files.catbox.moe/zfdvuh.png" height="85" width=600">
