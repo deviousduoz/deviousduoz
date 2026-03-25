@@ -21,7 +21,7 @@
 ![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=0f1c58)
 
 <p align="center">                 
- <img src="https://files.catbox.moe/zfdvuh.png" height="85 width=600">
+ <img src="https://files.catbox.moe/zfdvuh.png" height="85" width=600">
 
 <!--
 **deviousduoz/deviousduoz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
