@@ -4,13 +4,9 @@
  <img src="https://files.catbox.moe/7ietri.png" height=440 width=600">
 
 
-<p align="center"
 
-<p align="left">
-<img src="https://files.catbox.moe/g32vf1.png" height=100 width=100">
-
-<p align="center"> $${\color{navy}
-    i  go by tangsz or  jay!!   }$$
+ <p> <img src="https://files.catbox.moe/g32vf1.png" height=100 width=100">  </p>
+ <p> $${\color{navy} i  go by tangsz or  jay!!   }$$ </p>
  <p align="center"> $${\color{red}
   istp,  6w5}$$     <a href="https://spokeful.atabook.org/">sign my ata</a>
 
