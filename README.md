@@ -7,7 +7,7 @@
 
 <p align="center">   
 <img style="float: center;" src="https://files.catbox.moe/g32vf1.png" height=50 width=50/>
-$${\color{navy} i  go by tangsz or  jay!!   }$$
+$${\color{navy} i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp  6w5  }$$
 </p>
  <p align="center"> $${\color{red}
   istp,  6w5}$$     <a href="https://spokeful.atabook.org/">sign my ata</a>
