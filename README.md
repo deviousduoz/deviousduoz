@@ -9,8 +9,7 @@
 <img style="float: center;" src="https://files.catbox.moe/g32vf1.png" height=50 width=50/>
 $\color{#fc4e4e}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp  6w5  }$
 </p>
- <p align="center"> $${\color{red}
-  istp,  6w5}$$     <a href="https://spokeful.atabook.org/">sign my ata</a>
+ <p align="center"> $\color{#d94355}{spam   follower   main    acc}$     <a href="https://spokeful.atabook.org/">sign my ata</a> $\color{#d94355}{▀▄▀▄▀▄▀▄}$
 
 
 
@@ -19,7 +18,7 @@ $\color{#fc4e4e}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp
 
   
 
-![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=0f1c58)
+![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=ff9391)
 
 
 
