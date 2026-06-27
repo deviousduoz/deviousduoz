@@ -1,7 +1,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=15&pause=1000&color=F76565&vCenter=true&multiline=true&width=850&height=60&lines=+%E2%80%81++so+as+cool+your+fishing+rod+is%2C+you're+going+need+to+bring+something+a+little+better+to+this+fight.)](https://git.io/typing-svg)
 
 <p align="center">                 
- <img src="https://files.catbox.moe/t92u61.png" height="85" width=600">
+ <img src="https://files.catbox.moe/2fc9c7.webp" height="85" width=600">
 <p align="center">                 
  <img src="https://files.catbox.moe/hpp26w.gif" height=440 width=600">
 
