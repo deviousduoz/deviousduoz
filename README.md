@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=375&pause=1000&color=F7A8D2&multiline=true&width=435&lines=and+maybe+i+will+see+you+again.;but+for+now%2C+its+goodbye)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=375&size=12&duration=4500&pause=500&color=F7A8D2&multiline=true&width=435&lines=and+maybe+i+will+see+you+again.+but+for+now%2C+its+goodbye)](https://git.io/typing-svg)
 
 <p align="center">                 
  <img src="https://files.catbox.moe/2fc9c7.webp" height="85" width=600">
