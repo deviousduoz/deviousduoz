@@ -21,7 +21,7 @@ $\color{#ff7db3}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp
 
   
 
-![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=fcaecf) $\color{#de4987}{  ✧  c+h   enc    w2i!!  ೀ     libramasc  ,  aro-spec    }$
+![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=fcaecf) $\color{#a66f86}{  ✧  c+h   enc    w2i!!  ೀ     libramasc  ,  aro-spec    }$
 
 
 
