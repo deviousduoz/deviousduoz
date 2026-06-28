@@ -9,9 +9,9 @@
 
 <p align="center">   
 <img style="float: center;" src="https://files.catbox.moe/g32vf1.png" height=50 width=50/>
-$\color{#fc4e4e}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp  9w8  }$
+$\color{#ff7db3}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp  9w8  }$
 </p>
- <p align="center"> $\color{#d94355}{spam   follower   main    acc}$     <a href="https://spokeful.atabook.org/">sign my ata</a> $\color{#d94355}{ ໒꒰ྀི ´ ꒳ ` ྀི꒱১   ▀▄▀▄}$
+ <p align="center"> $\color{#ffa6cb}{spam   follower   main    acc}$     <a href="https://spokeful.atabook.org/">sign my ata</a> $\color{#f06ea4}{ ໒꒰ྀི ´ ꒳ ` ྀི꒱১   ▀▄▀▄}$
 
 
 
@@ -21,7 +21,7 @@ $\color{#fc4e4e}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp
 
   
 
-![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=ff9391) $\color{#544242}{  ✧  c+h   enc    w2i!!  ೀ     libramasc  ,  aro-spec    }$
+![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=fcaecf) $\color{#de4987}{  ✧  c+h   enc    w2i!!  ೀ     libramasc  ,  aro-spec    }$
 
 
 
