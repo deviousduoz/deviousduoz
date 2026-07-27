@@ -29,7 +29,8 @@ $\color{#ffb5d8}{  ୨୧ ︶ꔫ𓂅  ◟ sp974  flev      rcoei    }$ <
 
 <p align="center"  
  
-<img style="float: center;" src="https://64.media.tumblr.com/45cb4fc9e805af195508fe6562ea4a24/61d535c112c54c44-51/s400x600/ccbdb529ca20ebc753a03d974daf126278b5b246.png" height=150 width=200/> </img> $\color{#a66f86}{  best   on   pc  }$ <img style="float: center;" src="https://64.media.tumblr.com/53c27214e78f6be41c73fc2a4fe35bc8/543110503f68f349-46/s75x75_c1/bcf951aa8ff6173cd7312da8f61e9363b5dc96bf.gif" height=150 width=250/> </img> $\color{#a66f86}{      currently       8k  following.    }$
+<img style="float: center;" src="https://64.media.tumblr.com/45cb4fc9e805af195508fe6562ea4a24/61d535c112c54c44-51/s400x600/ccbdb529ca20ebc753a03d974daf126278b5b246.png" height=150 width=200/> </img> $\color{#a66f86}{  best   on   pc  }$ <img style="float: center;" src="https://64.media.tumblr.com/53c27214e78f6be41c73fc2a4fe35bc8/543110503f68f349-46/s75x75_c1/bcf951aa8ff6173cd7312da8f61e9363b5dc96bf.gif" height=150 width=250/> </img> $\color{#a66f86}{     pony      town        mapicc
+      }$
 
 
 
