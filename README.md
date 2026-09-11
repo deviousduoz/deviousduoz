@@ -9,7 +9,7 @@
 
 <p align="center">   
 <img style="float: center;" src="https://64.media.tumblr.com/2ba913dd39d39b6a92d2ea7cf12d0e53/ba67ba8a4f9a99fa-64/s250x400/2187efc9dafcedc919486c0717a9324781ce7f0b.png" height=50 width=50/>
-$\color{#ff7db3}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp  9w8  }$
+$\color{#ff7db3}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    entp  7w8  }$
 </p>
  <p align="center"> $\color{#ffa6cb}{spam   follower   main    acc}$     <a href="https://jaywalkers.atabook.org/">sign my ata</a> $\color{#f06ea4}{ ໒꒰ྀི ´ ꒳ ` ྀི꒱১   ▀▄▀▄}$
 
@@ -25,7 +25,7 @@ $\color{#ff7db3}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    istp
 
 <p align="center" 
 
-$\color{#ffb5d8}{  ୨୧ ︶ꔫ𓂅  ◟ sp974  flev      rcoei    }$ <img style="float: center;" src="https://64.media.tumblr.com/17a6cecf2b47b85c58b061f7a0ca5458/bd2c07e98ea9bf52-34/s400x600/d881867a2d711e3779923fb12fae996b866bf135.gif" height=15 width=10/>
+$\color{#ffb5d8}{  ୨୧ ︶ꔫ𓂅  ◟ sp794  flev      scoei    }$ <img style="float: center;" src="https://64.media.tumblr.com/17a6cecf2b47b85c58b061f7a0ca5458/bd2c07e98ea9bf52-34/s400x600/d881867a2d711e3779923fb12fae996b866bf135.gif" height=15 width=10/>
 
 <p align="center"  
  
