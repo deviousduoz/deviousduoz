@@ -2,7 +2,7 @@
  
 <table>
   <tr>
-    <td align="center"> <img src="https://files.catbox.moe/iwa62l.gif" height=50 width=90/>
+    <td align="center"> <img src="https://files.catbox.moe/iwa62l.gif" height=45 width=100/>
 
  </tr></table></td> <p align="right">                 
  <img src="https://files.catbox.moe/hpp26w.gif" height=400 width=500">
