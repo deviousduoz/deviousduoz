@@ -2,7 +2,7 @@
  
 <table>
   <tr>
-    <td> <img src="https://files.catbox.moe/iwa62l.gif" height=45 width=100/> </td>  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<td><img src="https://64.media.tumblr.com/d35357a5a9b6af41899bb9dc3b87499b/ddac6970d3deab0e-4a/s100x200/cec9e8398f2a2a73ec19f2d8f8ee3a03345039c0.gif" height=45 width=100/>
+    <td> <img src="https://files.catbox.moe/iwa62l.gif" height=45 width=100/> </td>  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<td><img src="https://64.media.tumblr.com/c62a19d08a0dadf9fcb06d29963e49c1/a91813f25738b6f3-59/s100x200/c3171e451d55b488c2ce758d6e3b2732d94332a2.gif" height=45 width=100/>
  </tr> </table> </td> <p align="right">               
  <img src="https://files.catbox.moe/hpp26w.gif" height=400 width=500">
 
