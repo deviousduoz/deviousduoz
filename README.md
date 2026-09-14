@@ -2,7 +2,7 @@
  
 <table>
   <tr>
-    <td><img src="https://files.catbox.moe/iwa62l.gif" height=45 width=100/> </td></tr></table>  erer
+    <td><img src="https://files.catbox.moe/iwa62l.gif" height=45 width=80/> </td></tr></table>  erer
  erre
  erlerlE
  er
