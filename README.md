@@ -12,4 +12,4 @@
 
 
 ⠀ 
-⠀ ⠀<p> ⠀ ⠀ ![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=fcaecf)⠀ ⠀ $\color{#ff7db3}{i  ⠀ ⠀ go by  ⠀ tangsz or  ⠀ ⠀ jay!!   ⠀ ⠀  ི ·̩͙ ཀ     }$ </p>
+⠀ ⠀<p> ⠀⠀ ![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=fcaecf)⠀ $\color{#ff7db3}{  ⠀ ⠀⠀ ⠀jay ⠀ ⠀or ⠀ ⠀tangsz ི ·̩͙ ཀ     }$ </p>
