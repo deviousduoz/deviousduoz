@@ -3,7 +3,7 @@
  
 <table>
   <tr>
-    <td ailgn="center"><img src="https://files.catbox.moe/iwa62l.gif" height=45 width=80/> </td></tr></table>  
+    <td ailgn="center"><img src="https://files.catbox.moe/iwa62l.gif" height=45 width=80/> </td></tr></table>   
   <p align="left">      
      <img align="right" src="https://files.catbox.moe/dvtvuw.png" height=370 width=400">
               
@@ -12,4 +12,4 @@
 
 
 ⠀ 
-  ⠀ ⠀ ⠀ ⠀⠀ ⠀<p> ⠀ ⠀ ⠀ ⠀ $\color{#ff7db3}{i  ⠀ ⠀ go by  ⠀ tangsz or  ⠀ ⠀ jay!!   ⠀ ⠀  ི ·̩͙ ཀ     }$ </p>
+⠀ ⠀<p> ⠀ ⠀ ![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=fcaecf)⠀ ⠀ $\color{#ff7db3}{i  ⠀ ⠀ go by  ⠀ tangsz or  ⠀ ⠀ jay!!   ⠀ ⠀  ི ·̩͙ ཀ     }$ </p>
