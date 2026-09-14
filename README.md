@@ -9,4 +9,7 @@
               
 ⠀⠀ ⠀ ⠀  ⠀ ⠀   <a href="https://jaywalkers.atabook.org/">atabook</a>  ⠀ ⠀⠀⠀<a href="https://jaywalkers.atabook.org/">strawpage</a>  ⠀ ⠀⠀⠀<a href="https://jaywalkers.atabook.org/">rentry</a>
 
-hello
+
+
+⠀ 
+  ⠀ ⠀ ⠀ ⠀⠀ ⠀<p> ⠀ ⠀ ⠀ ⠀ $\color{#ff7db3}{i  ⠀ ⠀ go by  ⠀ tangsz or  ⠀ ⠀ jay!!   ⠀ ⠀  ི ·̩͙ ཀ     }$ </p>
