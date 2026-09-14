@@ -2,13 +2,12 @@
  
 <table>
   <tr>
-    <td> <img src="https://files.catbox.moe/iwa62l.gif" height=45 width=100/> </td>  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<td><img src="https://64.media.tumblr.com/c62a19d08a0dadf9fcb06d29963e49c1/a91813f25738b6f3-59/s100x200/c3171e451d55b488c2ce758d6e3b2732d94332a2.gif" height=45 width=100/>
- </tr> </table> </td>  erer
+    <td><img src="https://files.catbox.moe/iwa62l.gif" height=45 width=100/> </td></tr></table>  erer
  erre
  erlerlE
  er
  <p align="right">               
- <img src="https://files.catbox.moe/hpp26w.gif" height=400 width=500">
+ <img src="https://files.catbox.moe/hpp26w.gif" height=350 width=450">
 
 
 
