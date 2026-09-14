@@ -13,4 +13,4 @@
 
 ⠀ 
 ⠀ ⠀<p> ⠀⠀ ![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=211e1e)⠀ $\color{#c90606}{  ⠀ ⠀⠀ ⠀jay ⠀ ⠀or ⠀ ⠀tangsz⠀ ⠀ ི ·̩͙⠀ ཀ    }$ </p>
-<p>  $\color{#c90606}{  ⠀ ⠀⠀ ⠀jay ⠀ ⠀or ⠀ ⠀tangsz⠀ ⠀⠀ ི ·̩͙⠀ ཀ     }$ </p>
+<p>  $\color{#c90606}{  ⠀ ⠀⠀int⠀   or ⠀  c+h ⠀   encouraged ⠀      }$ </p>
