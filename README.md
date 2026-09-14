@@ -14,10 +14,7 @@
     </td>
   </tr>  
 </table> 
-<p align="center"
-
-hi lmaoss
-<p align="center">                 
+<p align="right">                 
  <img src="https://files.catbox.moe/hpp26w.gif" height=440 width=600">
 
 
