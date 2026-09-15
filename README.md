@@ -5,7 +5,7 @@
   <tr>
     <td ailgn="center"><img src="https://files.catbox.moe/iwa62l.gif" height=45 width=80/> </td></tr></table>   
   <p align="left">      
-     <img align="right" src="https://files.catbox.moe/dvtvuw.png" height=370 width=350">
+     <img align="right" src="https://files.catbox.moe/dvtvuw.png" height=400 width=420">
               
 ⠀⠀ ⠀ ⠀⠀  <a href="https://jaywalkers.atabook.org/">新book</a>  ⠀ ⠀⠀⠀<a href="https://jaywalkers.atabook.org/">strawpage</a>  ⠀ ⠀⠀⠀<a href="https://jaywalkers.atabook.org/">rentry</a>
 
