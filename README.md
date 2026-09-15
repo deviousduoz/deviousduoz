@@ -7,7 +7,7 @@
   <p align="left">      
      <img align="right" src="https://files.catbox.moe/dvtvuw.png" height=360 width=370">
               
-⠀⠀ ⠀ ⠀⠀  <a href="https://jaywalkers.atabook.org/">新book</a>  ⠀ ⠀⠀⠀<a href="https://jaywalkers.atabook.org/">strawpage</a>  ⠀ ⠀⠀⠀<a href="https://jaywalkers.atabook.org/">rentry</a>
+⠀⠀ ⠀ ⠀⠀  <a href="https://jaywalkers.atabook.org/">新book</a>  ⠀⠀⠀<a href="https://jaywalkers.atabook.org/">strawpage</a> ⠀ ⠀⠀<a href="https://jaywalkers.atabook.org/">rentry</a>
 
 
 
