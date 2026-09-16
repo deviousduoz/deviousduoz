@@ -13,9 +13,9 @@
 <p>  $\color{#750b0b}{  ⠀ ⠀❥ ⠀  ⠀ ⠀int⠀anytime⠀ ⠀ ⠀      c+h ⠀ ⠀  ⠀  enc ⠀      }$ <img src="https://64.media.tumblr.com/21db2b8f172e83eb5eadd93c9f8cdd70/0f1dd797b5574c42-6c/s75x75_c1/4ec5482abb0ccb96277238cad705a103968c4da2.gif"> </p>
 <p>   $\color{#c20000}{   ⠀ ⠀ (⁔• ༝ •⁔  ྀི)з ⠀⠀ ⠀ ⠀ entp⠀ ⠀ sp784 ⠀ sCu/E/[I]  ⠀ !!⠀⠀      }$  </p>
 <p>   $\color{#241816}{  ⠀⠀ aro-spec ,⠀ }$ $\color{#4d1d1d}{ libramasc }$  $\color{#751a1a}{  ⠀ ֺ۪　♡  }$    ⠀<img src="https://64.media.tumblr.com/51534331450cf46c38c958683a4858be/0834f07aedc1c640-e5/s250x400/733a4dbcd18edd4b5b30ea359ac0627dd5c104ab.gif"> </p>
-<p>   $\color{#c20000}{  ⠀⠀  ⠀⠀    sangchol ⠀⠀  𓎟𓎟𓎟𓎟𓎟𓎟⠀⠀ ⠀⠀ multifandom }$   </p>
+<p>   $\color{#4f0202}{  ⠀⠀  ⠀⠀    sangchol ⠀⠀  𓎟𓎟𓎟𓎟𓎟𓎟⠀⠀ ⠀⠀ multifandom }$   </p>
 
-<p>   $\color{#c20000}{  ⠀⠀  ︶ ⠀  best⠀   on ⠀  desktop ⠀⠀  ⠀  ⠀   ✿⠀  ⠀artist+editor }$   </p>
+<p>   $\color{#7d0404}{  ⠀⠀  ︶ ⠀  best⠀   on ⠀  desktop ⠀⠀   ⠀  ⠀   ✿⠀}$  $\color{#ad0303}{  ⠀artist+editor }$   </p>
 
   ⠀⠀  
 ⠀ ⠀   
