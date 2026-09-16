@@ -5,7 +5,7 @@
   <tr>
     <td ailgn="center"><img src="https://files.catbox.moe/iwa62l.gif" height=45 width=80/> </td></tr></table>   
   <p align="left">      
-     <img align="right" src="https://files.catbox.moe/dvtvuw.png" height=360 width=370">
+     <img align="right" src="https://pbs.twimg.com/media/HH0RGBcaMAA2nQv?format=jpg&name=large" height=360 width=260">
 
 ⠀⠀ ⠀ ⠀⠀⠀ ⠀   <a href="https://jaywalkers.atabook.org/">新book</a>  ⠀⠀⠀<a href="https://jaywalkers.atabook.org/">strawpage</a> ⠀ ⠀⠀<a href="https://jaywalkers.atabook.org/">rentry</a>
 ⠀ ⠀<p> ⠀⠀ ![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=211e1e)⠀ $\color{#ed1111}{  ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ jay ⠀ or ⠀ tangsz⠀ ⠀ ི ·̩͙⠀ ཀ    }$ </p>
@@ -21,5 +21,5 @@
   ⠀  ⠀  
 
 
-<p>  ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ $\color{#630d00}{⠀⠀ ⠀ ac: Foolingrat74.  }$ </p>
+<p>  ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ $\color{#630d00}{⠀⠀ ⠀ ac: mapiccgummywrms.  }$ </p>
  ⠀ ⠀⠀ ⠀
