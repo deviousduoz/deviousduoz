@@ -15,7 +15,7 @@
 <p>   $\color{#241816}{  ⠀⠀ aro-spec ,⠀ }$ $\color{#4d1d1d}{ libramasc }$  $\color{#751a1a}{  ⠀ ֺ۪　♡  }$    ⠀<img src="https://64.media.tumblr.com/51534331450cf46c38c958683a4858be/0834f07aedc1c640-e5/s250x400/733a4dbcd18edd4b5b30ea359ac0627dd5c104ab.gif"> </p>
 <p>   $\color{#c20000}{  ⠀⠀  ⠀⠀    sangchol ⠀⠀  𓎟𓎟𓎟𓎟𓎟𓎟⠀⠀ ⠀⠀ multifandom }$   </p>
 
-<p>   $\color{#c20000}{  ⠀⠀  ⠀  best⠀   on ⠀  pc ⠀⠀  ⠀  ⠀    }$   </p>
+<p>   $\color{#c20000}{  ⠀⠀  ⠀  best⠀   on ⠀  desktop ⠀⠀  ⠀  ⠀    }$   </p>
 
   ⠀⠀  
 ⠀ ⠀   
