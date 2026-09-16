@@ -16,7 +16,7 @@
 <p>   $\color{#c20000}{  ⠀⠀  ⠀⠀  ⠀⠀   sangchol ⠀⠀  𓎟𓎟𓎟𓎟𓎟𓎟⠀⠀ ⠀⠀ multifandom }$   </p>
 
 <p>   $\color{#c20000}{  ⠀⠀  ⠀  best⠀   on ⠀  pc ⠀⠀  ⠀  ⠀    }$   </p>
-
+ ⠀ 
  <img src="https://64.media.tumblr.com/f0966ec47a7f9dac464b0f5a84652697/1539e010ce8fa124-7a/s400x600/511301e4288181f6731d2deb00d0f993e00be5e9.png">
   ⠀  ⠀  
 
