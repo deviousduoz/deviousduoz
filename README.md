@@ -15,7 +15,7 @@
 <p>   $\color{#241816}{  ⠀⠀ aro-spec ,⠀ }$ $\color{#4d1d1d}{ libramasc }$  $\color{#751a1a}{  ⠀ ֺ۪　♡  }$    ⠀<img src="https://64.media.tumblr.com/51534331450cf46c38c958683a4858be/0834f07aedc1c640-e5/s250x400/733a4dbcd18edd4b5b30ea359ac0627dd5c104ab.gif"> </p>
 <p>   $\color{#4f0202}{  ⠀⠀  ⠀⠀    sangchol ⠀⠀  𓎟𓎟𓎟𓎟𓎟𓎟⠀⠀ ⠀⠀ multifandom }$   </p>
 
-<p>   $\color{#7d0404}{  ⠀⠀  ︶ ⠀  best⠀   on ⠀  desktop ⠀⠀   ⠀  ⠀   ✿⠀}$  $\color{#ad0303}{  ⠀artist+editor }$   </p>
+<p>   $\color{#7d0404}{  ⠀⠀  ︶ ⠀  best⠀   on ⠀  desktop ⠀⠀   ⠀  ⠀   ✿⠀}$  <a href="https://github.com/pt-walk-of-fame">ty pt-walk-of-fame</a>  </p>
 
   ⠀⠀  
 ⠀ ⠀   
