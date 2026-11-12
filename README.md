@@ -35,4 +35,3 @@ $\color{#ffb5d8}{  ୨୧   ︶ꔫ𓂅    ◟}$ <a href="https://roguejay.
 <p align="center">                 
  <img src="https://files.catbox.moe/h4stwe.png" height="85" width=600">
 
-<p>$\color{green}{⠀⠀ he }$  </p>
