@@ -1,29 +1,36 @@
-<p align="center"> 
-            <img src="https://i.postimg.cc/pTLK446X/d9209fb0.gif">
+<p align="center">                 
+ <img src="https://files.catbox.moe/2fc9c7.webp" height="85" width=600">
+<p align="center">                 
+ <img src="https://files.catbox.moe/hpp26w.gif" height=440 width=600">
+
+
+
+<p align="center">   
+<img style="float: center;" src="https://64.media.tumblr.com/2ba913dd39d39b6a92d2ea7cf12d0e53/ba67ba8a4f9a99fa-64/s250x400/2187efc9dafcedc919486c0717a9324781ce7f0b.png" height=50 width=50/>
+$\color{#ff7db3}{i  go by tangsz or  jay!!  ི ·̩͙ ཀ    entp  7w8  }$
+</p>
+ <p align="center"> $\color{#ffa6cb}{spam   follower   main    acc}$     <a href="https://jaywalkers.atabook.org/">sign my ata</a> $\color{#f06ea4}{ ໒꒰ྀི ´ ꒳ ` ྀི꒱১   ▀▄▀▄}$
+
+
+
+<p align="center" 
+
+
+
+  
+
+![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=fcaecf) $\color{#a66f86}{  ✧  c+h   enc    w2i!!  ೀ     libramasc  ,  aro-spec    }$
+
+<p align="center" 
+
+$\color{#ffb5d8}{  ୨୧ ︶ꔫ𓂅  ◟ sp794  flev      scoei    }$ <img style="float: center;" src="https://64.media.tumblr.com/17a6cecf2b47b85c58b061f7a0ca5458/bd2c07e98ea9bf52-34/s400x600/d881867a2d711e3779923fb12fae996b866bf135.gif" height=15 width=10/>
+
+<p align="center"  
  
-<table>
-  <tr>
-    <td ailgn="center"><img src="https://files.catbox.moe/iwa62l.gif" height=45 width=80/> </td></tr></table>   
-  <p align="right">      
- <img align="right" src="https://pbs.twimg.com/media/HH0RGBcaMAA2nQv?format=jpg&name=large" height=380 width=200">
-
-⠀⠀ ⠀ ⠀⠀⠀ ⠀   <a href="https://jaywalkers.atabook.org/">新book</a>  ⠀⠀⠀<a href="https://roguejay.straw.page/">strawpage</a> ⠀ ⠀⠀<a href="https://rentry.co/selfpres67">rentry</a>
-⠀ ⠀<p> ⠀⠀ ![silies](https://komarev.com/ghpvc/?username=bountyhunterzz&color=211e1e)⠀ $\color{#ed1111}{  ⠀ ⠀ ⠀⠀ ⠀ jay ⠀ or ⠀ tangsz⠀ ི ·̩͙⠀    }$ </p>
- 
-<p>  $\color{#750b0b}{  ⠀ ⠀❥ ⠀  ⠀ ⠀int⠀anytime⠀ ⠀ ⠀      c+h ⠀ ⠀  ⠀  enc ⠀      }$ <img src="https://64.media.tumblr.com/21db2b8f172e83eb5eadd93c9f8cdd70/0f1dd797b5574c42-6c/s75x75_c1/4ec5482abb0ccb96277238cad705a103968c4da2.gif"> </p>
-<p>   $\color{#c20000}{   ⠀ ⠀ (⁔• ༝ •⁔  ྀི)з ⠀⠀ ⠀ ⠀ entp⠀ ⠀ sp784 ⠀ sCu/E/[I]  ⠀ !!⠀⠀      }$  </p>
-<p>   $\color{#241816}{  ⠀⠀ aro-spec ,⠀ }$ $\color{#4d1d1d}{ libramasc }$  $\color{#751a1a}{  ⠀ ֺ۪　♡  }$    ⠀<img src="https://64.media.tumblr.com/51534331450cf46c38c958683a4858be/0834f07aedc1c640-e5/s250x400/733a4dbcd18edd4b5b30ea359ac0627dd5c104ab.gif"> </p>
-<p>   $\color{#4f0202}{  ⠀⠀  ⠀⠀    sangchol ⠀⠀  𓎟𓎟𓎟𓎟𓎟𓎟⠀⠀ ⠀⠀ multifandom }$   </p>
-
-<p>   $\color{#7d0404}{  ⠀⠀  ︶ ⠀  best⠀   on ⠀  desktop ⠀⠀   ⠀  ⠀   ✿⠀}$  <a href="https://github.com/pt-walk-of-fame">ty pt-walk-of-fame</a>  </p>
-
-  ⠀⠀  
-⠀ ⠀   
- <img src="https://64.media.tumblr.com/f0966ec47a7f9dac464b0f5a84652697/1539e010ce8fa124-7a/s400x600/511301e4288181f6731d2deb00d0f993e00be5e9.png">
-  ⠀  ⠀  
+<img style="float: center;" src="https://64.media.tumblr.com/45cb4fc9e805af195508fe6562ea4a24/61d535c112c54c44-51/s400x600/ccbdb529ca20ebc753a03d974daf126278b5b246.png" height=150 width=200/> </img> $\color{#a66f86}{  best   on   pc  }$ <img style="float: center;" src="https://64.media.tumblr.com/53c27214e78f6be41c73fc2a4fe35bc8/543110503f68f349-46/s75x75_c1/bcf951aa8ff6173cd7312da8f61e9363b5dc96bf.gif" height=150 width=250/>   </img>   <a href="https://github.com/pt-walk-of-fame">ty pt-walk-of-fame!!</a>
+      
 
 
-<p> $\color{#630d00}{⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ac: mapiccgummywrms.  }$ </p> 
- ⠀ ⠀⠀ ⠀
 
- 
+<p align="center">                 
+ <img src="https://files.catbox.moe/h4stwe.png" height="85" width=600">
