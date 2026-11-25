@@ -1,6 +1,6 @@
-<p>
-<img align="center" src="https://files.catbox.moe/4ndvxw.png" height=100 width=100">
-<table align="center">
+<p align="center">
+<img align="center" src="https://files.catbox.moe/4ndvxw.png" height=120 width=100">
+<table align="middle">
 <td>
 <p align="center"> 
 jay he/any
