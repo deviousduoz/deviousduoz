@@ -1,7 +1,4 @@
-<p align="center"> 
-
-<table>
-<tr>
+<table> 
 <td align="center">
 <p align="center"> 
 jay he/any
@@ -12,6 +9,5 @@ masc term
 <p align="center"> 
 flve²³¹² entp
 
-</table>
-</tr>
 </td>
+</table>
