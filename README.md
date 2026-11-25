@@ -18,7 +18,7 @@ masc term
 
 <p> $\color{#630a0a}\textsf{poopshampoo: }$ <a href="https://github.com/princezammery">sora</a> <a href="https://github.com/patchbreakers">sean</a> <a href="https://github.com/Chickenyaoi">chicken</a>
 
-$\color{#960e0e}\textsf{rob10xians: }$ @prizeflush @casino-flush @clockwork @sword @overseer @seildirectory @scarlet @kiki @scythw
+$\color{#960e0e}\textsf{rob10xians: }$ <a href="https://github.com/prizeflush">elli</a> <a href="https://github.com/casino-flush">arle</a> <a href="https://github.com/202xyuri">null</a> <a href="https://github.com/pwppy">kiki</a> <a href="https://github.com/corruptedscall">overseer</a> <a href="https://github.com/clockworkclover">kaito</a> <a href="https://github.com/TheTrueEyecollective">scythe</a> <a href="https://github.com/healrr">sword</a> <a href="https://github.com/Gr1mzR0se">scarlet</a>
 
 friend!! : @parrotsx2 @spongsmc @duowithme @neopuff @AppleBurst @TangoTekVariety @wickedirene  @jellybunnybear @wubism  @SpawnKilla0123 @rayinsta-tea  ++ green name.
 
