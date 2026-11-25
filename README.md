@@ -1,6 +1,5 @@
-<p align="center">
-<img align="center" src="https://files.catbox.moe/4ndvxw.png" height=120 width=100">
-<table align="middle">
+<table align="center"> 
+<img style="display: block; margin: auto;" src="https://files.catbox.moe/4ndvxw.png" height="120" width="100"/>
 <td>
 <p align="center"> 
 jay he/any
@@ -8,4 +7,3 @@ jay he/any
 masc term
 <p align="center">
 7w8 sp/so</td></table>
-
