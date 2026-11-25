@@ -1,7 +1,8 @@
-<table>
-  <thead>
-    <tr>
+<p align="center"> 
 
+<table>
+<tr>
+<td align="center>
 
 jay he/any
 masc term
@@ -11,5 +12,4 @@ aro-spec
 libramasc
 
 </table>
-  </thead>
-    </tr>
+</tr>
