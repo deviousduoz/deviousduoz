@@ -27,4 +27,4 @@ friend!! : @parrotsx2 @spongsmc @duowithme @neopuff @AppleBurst @TangoTekVariety
 </table>
 <p align="center">
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://jaywalkers.atabook.org/">新book</a>  ⠀⠀⠀<a href="https://roguejay.straw.page/">strawpage</a> ⠀ ⠀⠀<a href="https://rentry.co/selfpres67">rentry</a>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://jaywalkers.atabook.org/">新book</a>  ⠀⠀⠀<a href="https://roguejay.straw.page/">strawpage</a> ⠀ ⠀⠀
