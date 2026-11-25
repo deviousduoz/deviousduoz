@@ -6,8 +6,6 @@ jay he/any
 masc term
 <p align="center"> 
 7w8 sp/so
-<p align="center"> 
-flve²³¹² entp
 
 </td>
 </table>
