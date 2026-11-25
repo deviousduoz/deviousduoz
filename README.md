@@ -1,8 +1,8 @@
 <p align="center">
-
-<table align="left">  
-<img style="float: margin-left" align="left" src="https://files.catbox.moe/4ndvxw.png" height="120" width="100"/>
-⠀⠀  ⠀⠀⠀⠀⠀⠀⠀⠀
+<p style="text-align: center;">
+⠀⠀⠀⠀⠀⠀
+<table align="left">
+<img style="float: margin-left" align="left" src="https://files.catbox.moe/4ndvxw.png" height="120" width="100"/>⠀  ⠀⠀⠀⠀⠀⠀⠀⠀
 <td> <p align="center">
 jay he/any
 
