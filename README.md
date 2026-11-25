@@ -24,7 +24,7 @@ friend!! : @parrotsx2 @spongsmc @duowithme @neopuff @AppleBurst @TangoTekVariety
 
 </details>
 
-<p> <img src="https://komarev.com/ghpvc/?username=bountyhunterzz&color=7d0909"> ⠀⠀⠀⠀⠀ty hall of aura</p>
+<p> <img src="https://komarev.com/ghpvc/?username=bountyhunterzz&color=7d0909"> ⠀⠀⠀⠀<a href="https://github.com/pt-walk-of-fame">ty pt-walk-of-fame</a>  </p>
 </table>
 <p align="center">
 
