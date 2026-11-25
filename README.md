@@ -16,15 +16,15 @@ masc term
 <details>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀<summary> ⠀⠀oomf</summary>
 
-<p> $\color{#ff0000}\textsf{poopshampoo}$<a href="https://github.com/princezammery">sora</a> <a href="https://github.com/patchbreakers">sean</a> <a href="https://github.com/Chickenyaoi">chicken</a>
+<p> $\color{#630a0a}\textsf{poopshampoo: }$ <a href="https://github.com/princezammery">sora</a> <a href="https://github.com/patchbreakers">sean</a> <a href="https://github.com/Chickenyaoi">chicken</a>
 
-r10bloxian: @prizeflush @casino-flush @clockwork @sword @overseer @seildirectory @scarlet @kiki @scythw
+$\color{#960e0e}\textsf{rob10xians: }$ @prizeflush @casino-flush @clockwork @sword @overseer @seildirectory @scarlet @kiki @scythw
 
 friend!! : @parrotsx2 @spongsmc @duowithme @neopuff @AppleBurst @TangoTekVariety @wickedirene  @jellybunnybear @wubism  @SpawnKilla0123 @rayinsta-tea  ++ green name.
 
 </details>
 
-<p> <img src="https://komarev.com/ghpvc/?username=bountyhunterzz&color=b51b10"> ⠀⠀⠀⠀⠀ty hall of aura</p>
+<p> <img src="https://komarev.com/ghpvc/?username=bountyhunterzz&color=7d0909"> ⠀⠀⠀⠀⠀ty hall of aura</p>
 </table>
 <p align="center">
 
