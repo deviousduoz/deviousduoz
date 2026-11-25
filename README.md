@@ -13,14 +13,13 @@ masc term
   
 7w8 sp/so</td></table>
 
-<details>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀<summary> ⠀⠀oomf</summary>
+<details>to ⠀⠀⠀⠀⠀⠀⠀⠀⠀<summary> ⠀⠀oomf</summary>
 
 <p> $\color{#630a0a}\textsf{poopshampoo: }$ <a href="https://github.com/princezammery">sora</a> <a href="https://github.com/patchbreakers">sean</a> <a href="https://github.com/Chickenyaoi">chicken</a>
 
 $\color{#960e0e}\textsf{rob10xians: }$ <a href="https://github.com/prizeflush">elli</a> <a href="https://github.com/casino-flush">arle</a> <a href="https://github.com/202xyuri">null</a> <a href="https://github.com/pwppy">kiki</a> <a href="https://github.com/corruptedscall">seer</a> <a href="https://github.com/clockworkclover">kaito</a> <a href="https://github.com/TheTrueEyecollective">scythe</a> <a href="https://github.com/healrr">sword</a> <a href="https://github.com/Gr1mzR0se">scarlet</a>
 
-friend!! : @parrotsx2 @spongsmc @duowithme @neopuff @AppleBurst @TangoTekVariety @wickedirene  @jellybunnybear @wubism  @SpawnKilla0123 @rayinsta-tea  ++ green name.
+$\color{#c20e0e}\textsf{green name: }$ <a href="https://gitHub.com/parrotsx2">mallow</a> <a href="https://github.com/spongsmc">spongs</a> <a href="https://github.com/neopuff">puff</a> <a href="https://github.com/appleburst">andre</a> <a href="https://github.com/rayinsta-tea">ray</a> <a href="https://github.com/duowithme">four</a> <a href="https://github.com/wubism">sev</a> <a href="https://github.com/SpawnKilla0123">camryn</a>  ++ more
 
 </details>
 
