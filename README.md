@@ -16,7 +16,7 @@ masc term
 <details>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀<summary> ⠀⠀oomf</summary>
 
-<p> $${\color{red}Red}$$ <a href="https://github.com/princezammery">sora</a> <a href="https://github.com/patchbreakers">sean</a> <a href="https://github.com/Chickenyaoi">chicken</a>
+<p> $\color{#ff0000}\textsf{poopshampoo}$<a href="https://github.com/princezammery">sora</a> <a href="https://github.com/patchbreakers">sean</a> <a href="https://github.com/Chickenyaoi">chicken</a>
 
 r10bloxian: @prizeflush @casino-flush @clockwork @sword @overseer @seildirectory @scarlet @kiki @scythw
 
