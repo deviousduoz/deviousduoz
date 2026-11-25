@@ -1,4 +1,5 @@
 <table align="center"> 
+<p align="center"> 
 <img style="display: block; margin: auto;" src="https://files.catbox.moe/4ndvxw.png" height="120" width="100"/>
 <td>
 <p align="center"> 
