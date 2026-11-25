@@ -1,4 +1,4 @@
-<table> 
+<table align="center"> 
 <td align="center">
 <p align="center"> 
 jay he/any
